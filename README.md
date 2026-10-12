@@ -1,0 +1,1 @@
+# a-smarter-study-plan-for-the-fortinet-nse7ssear-26-exam-2026
